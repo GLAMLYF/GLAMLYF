@@ -1,7 +1,7 @@
 - Hi, I’m @GLAMLYF
 - main interest: notetaking for academics
 - main activity: writer-editor pursuing a master's in U.S. history at George Mason University.
-- 📫 mmkatz63@gmail.com
+- 
 - 
 
 <!---
