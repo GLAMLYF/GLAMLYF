@@ -1,7 +1,7 @@
 - Hi, I’m @GLAMLYF
-- main interest: notetaking for academics
+- main interest: notetaking for academics and Zotero integrations, and workflows incorporating iPad 
 - main activity: writer-editor pursuing a master's in U.S. history at George Mason University.
- 
+- reach me at: mandykatzmandykatz@gmail.com 
 
 
 <!---
